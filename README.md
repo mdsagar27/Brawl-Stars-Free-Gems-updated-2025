@@ -5,9 +5,9 @@ If you’re looking for ways to get free Gems in Brawl Stars, you’ve come to t
 
 Claim your Brawl Stars Free Gems now by clicking this link. 👇👇👇
 
-Click Here 👉👉 [✅✅ Get Free Brawl Stars Gems ✅✅](https://shorturl.at/YwJEz)
+Click Here 👉👉 [✅✅ Get Free Brawl Stars Gems ✅✅](https://rb.gy/v926nt)
 
-Click Here 👉👉 [✅✅ Get Free Brawl Stars Gems ✅✅](https://shorturl.at/YwJEz)
+Click Here 👉👉 [✅✅ Get Free Brawl Stars Gems ✅✅](https://rb.gy/v926nt)
 
 ## What Are Brawl Stars Gems?
 
